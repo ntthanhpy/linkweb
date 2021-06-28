@@ -45,3 +45,32 @@ https://moodle.aiacademy.edu.vn/login/index.php#section-19
 
 https://www.philippsinger.com/
 
+https://ternaus.blog/
+
+https://btcnhung1299.github.io/blog/
+
+https://vinhnguyenx.net/
+
+https://www.learningmachines101.com/
+
+https://www.youtube.com/channel/UC7kjWIK1H8tfmFlzZO-wHMw
+
+http://colah.github.io/
+
+http://jakevdp.github.io/
+
+https://quangchien.wordpress.com/
+
+https://duczk.com/
+
+https://ml.typepad.com/
+
+http://template.bin.com.vn/
+
+https://dongphym.net/movie/-truoc-ngay-em-den-me-before-you_440JeQ3d.html
+
+https://github.com/mlbvn
+
+https://github.com/undertheseanlp
+
+https://www.aclweb.org/anthology/
