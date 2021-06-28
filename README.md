@@ -30,3 +30,18 @@ https://anonystick.com/blog-developer/sap-bi-duoi-viec-vi-he-thong-cham-lay-shop
 
 https://anonystick.com/
 
+https://shopee.sg/blog/lifeatshopee-interview-developer-pc/
+
+https://shopee.sg/blog/lifeatshopee-interview-developer-pc/
+
+https://shopee.sg/blog/lifeatshopee-shopee-career-developer-tenzy/
+
+http://icpcvn.github.io/
+
+https://retail.sc.com/vn/ibank/foa/login.htm
+
+https://moodle.aiacademy.edu.vn/login/index.php#section-19
+(ntthanhpy@gmail.com)
+
+https://www.philippsinger.com/
+
