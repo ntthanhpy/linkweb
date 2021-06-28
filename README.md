@@ -74,3 +74,25 @@ https://github.com/mlbvn
 https://github.com/undertheseanlp
 
 https://www.aclweb.org/anthology/
+
+https://github.com/d2l-ai
+
+https://machinelearningcoban.com/
+
+https://dominhhai.github.io/vi/tags/
+
+https://followthe.trailing.space/To-the-Root-of-the-Tree-dc170bf0e8de44a6b812ca3e01025236
+
+https://docs.phalcon.io/3.4/en/api/
+
+https://drive.google.com/drive/folders/1mY--W6YnS4oXA5q8uCt0dUT1RG3BxQqq?fbclid=IwAR3t03ZcPxJBsf_cSr8VoUsjPvMf9iQERT_4IDgUsd3Q_zKG8tqu8333R2U
+
+https://www.dtv-ebook.com/57-ebook-tam-ly-hoc-full-prc-pdf-epub_1841.html
+
+http://minhdo.ece.illinois.edu/biography/
+
+https://cs.stanford.edu/~quocle/
+
+https://www.youtube.com/user/LDSGeneralConference
+
+https://www.youtube.com/user/FamilySearch
